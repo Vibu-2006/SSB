@@ -59,7 +59,7 @@ OUTPUT WAVEFORM
 
 TABULATION
 
-![ssbsc-anal](https://github.com/user-attachments/assets/7f9573c5-95ae-47d4-b2a9-738927da168d)
+![WhatsApp Image 2025-11-29 at 13 48 33_e66fd733](https://github.com/user-attachments/assets/58adb211-199d-4b40-80b8-b6549640a050)
 
 
 
